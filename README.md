@@ -1,4 +1,9 @@
 # Daniel-J-Mueller.github.io
-Ideas that I have accumulated and published to a centralized location for timestamped public accession. Novel innovations and fuel for ideas is the objective.
 
-My recent interests have a lot of overlap with Mark Zuckerberg's past projects. Perhaps he will see the value in this public data, and is welcome to use it as he pleases.
+Access to ideas is the heart of this project. 
+
+As many in this field have said, AI is going to be monumental with regard to the discovery of new inventions. 
+
+I hope that this creates new possibilities for a great many people. 
+
+"When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us." - Helen Keller
